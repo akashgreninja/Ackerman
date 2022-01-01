@@ -17,4 +17,4 @@ under Section 43 of the Information Technology Act, 2000 with penalty upto Rs. 1
 
 
 
-**********************************************************THIS IS FOR EDUCATIONAL PURPOSES ONLY **************
+******************************THIS IS FOR EDUCATIONAL PURPOSES ONLY **************
